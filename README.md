@@ -1,1 +1,2 @@
-# rsschool-cv
+https://juanitoquagliarella.github.io/rsschool-cv/
+
