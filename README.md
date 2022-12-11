@@ -1,2 +1,2 @@
-https://juanitoquagliarella.github.io/rsschool-cv/cv
+https://juanitoquagliarella.github.io/rsschool-cv/
 
